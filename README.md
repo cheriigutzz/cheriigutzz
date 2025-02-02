@@ -7,4 +7,9 @@
 <img width="400" height="600" src="https://github.com/cheriigutzz/cheriigutzz/assets/157747030/3d6c2f4c-9f64-46a5-a92c-fb7babdb6bc5">
 </p>
 
+🟢 online!! 
+🌙 off-tab, probably watching youtube/drawing
+⛔ afk
+
 ![tumblr_11e427d5bbf0b86c76f6dd7400ffffb4_01e557ec_1280](https://github.com/cheriigutzz/cheriigutzz/assets/157747030/c40ba01e-aaff-4481-b035-d4c2c74ca03d)
+
